@@ -1,1 +1,3 @@
 ## El tiempo es algo tan relativo que , ni la vida misma puede resolver la teoria...
+
+## Agregare que , estoy cansado y quiero dormir pero mirar tus ojos iluminan como un rayo reproduciendo la cancion nuts de Lil Pee :3
